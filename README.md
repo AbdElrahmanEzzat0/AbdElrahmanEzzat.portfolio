@@ -1,4 +1,4 @@
 # DATA ANALYST
 ## EDUCATION
-Information Technology 
+Information Technology becalore
 
